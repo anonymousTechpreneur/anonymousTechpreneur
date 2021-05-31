@@ -1,3 +1,5 @@
+https://www.linkedin.com/in/shubham-udsaria-0b9261128
+
 Seeking for a challenging opportunity where I can grow my skills and support the growth of the organization.
 Skilled in Electronics, Python, IOT, Arduino and Raspberry Pi with a strong academic background.
 
